@@ -13,6 +13,7 @@ Pasta tossed in a fresh, homemade basil pesto with Parmesan, pine nuts, garlic a
 | Total Time | 30 minutes |
 | Servings | 6 |
 | Difficulty | Easy |
+| Spice level | 🚫🌶️ Not spicy |
 | Tags | vegetarian, italian, quick, crowd-friendly, dinner |
 
 ### Ingredients:
