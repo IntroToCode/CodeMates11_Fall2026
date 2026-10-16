@@ -13,6 +13,7 @@ Coffee-flavoured overnight oats with a creamy vanilla yogurt topping and a dusti
 | Total Time | 6 hours 10 minutes, including chilling |
 | Servings | 1 |
 | Difficulty | Easy |
+| Spice level | 🚫🌶️ Not spicy |
 | Tags | vegetarian, make-ahead, no-cook, breakfast |
 
 ### Ingredients:

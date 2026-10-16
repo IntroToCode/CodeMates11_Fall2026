@@ -13,6 +13,7 @@ Seared, lime-marinated beef strips in warm corn tortillas, topped with crisp let
 | Total Time | 45 minutes, including marinating |
 | Servings | 4 (about 12 tacos) |
 | Difficulty | Easy |
+| Spice level | 🌶️ Mild |
 | Tags | beef, mexican-inspired, dinner, gluten-free |
 
 ### Ingredients:
