@@ -61,3 +61,5 @@ To make the pico de gallo yourself, combine diced tomato, onion,
 cilantro, jalapeño, lime juice, and salt. For homemade guacamole,
 mash ripe avocado with lime juice, salt, and a little onion and
 cilantro.
+
+Team unanimously chose it as a favorite.
