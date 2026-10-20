@@ -66,5 +66,3 @@ vegetables.
 
 ### Author(s):
 Jhalak Agarwal
-
-### Author(s):
