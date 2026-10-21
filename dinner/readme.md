@@ -64,5 +64,15 @@ of olive oil and keep it in the fridge so it stays green.
 For extra protein, add grilled chicken, white beans or roasted
 vegetables.
 
+### Beverage pairing:
+
+**Vermentino (Italian dry white wine)**. Pesto comes from Liguria, and
+Vermentino is one of that region's best-known white wines. Its crisp
+acidity and herbal, citrusy notes match the basil and cut through the
+olive oil and Parmesan. Serve it chilled.
+
+Non-alcoholic swap: sparkling water with a squeeze of lemon and a few
+basil leaves.
+
 ### Author(s):
 Jhalak Agarwal
