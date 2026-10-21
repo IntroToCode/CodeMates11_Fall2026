@@ -28,6 +28,18 @@ Pasta tossed in a fresh, homemade basil pesto with Parmesan, pine nuts, garlic a
 - [ ] 1/4 teaspoon black pepper
 - [ ] 1 cup cherry tomatoes, halved (optional, for serving)
 
+- [ ] Double recipe
+- [ ] 3 pounds pasta (trofie, fusilli, penne or spaghetti)
+- [ ] 8 cups fresh basil leaves, loosely packed
+- [ ] 1 cup pine nuts
+- [ ] 6 garlic cloves, peeled
+- [ ] 2 cup grated Parmesan cheese, plus extra for serving
+- [ ] 4/3 cup extra-virgin olive oil
+- [ ] 2 tablespoon lemon juice
+- [ ] 1 teaspoon salt for the pesto, plus more for the pasta water
+- [ ] 1/2 teaspoon black pepper
+- [ ] 2 cup cherry tomatoes, halved (optional, for serving)
+
 ### Steps for preparation:
 
 1. Bring a large pot of water to a boil and add about
