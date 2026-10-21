@@ -64,5 +64,11 @@ of olive oil and keep it in the fridge so it stays green.
 For extra protein, add grilled chicken, white beans or roasted
 vegetables.
 
+### Beverage Pairing:
+
+Suggestion: Bitter Lemon & Tonic
+Mix fresh lemon juice and tonic water. 
+Garnish with a basil sprig to echo the herbal flavors.
+
 ### Author(s):
 Jhalak Agarwal
